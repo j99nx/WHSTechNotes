@@ -21,3 +21,11 @@ i played the game Acceleration City
 
 # october 9, 2025
 i played the game Super Slime Battle
+
+# October 20, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin | second  91A    |
+| Hardeep  |  Third  61F   |      |
+| Marla    |  First   35B  |      |
