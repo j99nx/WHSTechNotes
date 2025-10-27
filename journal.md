@@ -29,3 +29,9 @@ i played the game Super Slime Battle
 | Franklin | second  91A    |
 | Hardeep  |  Third  61F   |      |
 | Marla    |  First   35B  |      |
+# October 27, 2025]
+
+| Name | main dish |Dessert
+| Fiona| Gado Gado |Creme Brulee
+| Tobias|Shrimp Ceviche|French Apple Cake
+| Leanne|Beef Wellington|Raspberry Tiramisu
