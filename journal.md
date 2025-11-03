@@ -35,3 +35,6 @@ i played the game Super Slime Battle
 | Fiona| Gado Gado |Creme Brulee
 | Tobias|Shrimp Ceviche|French Apple Cake
 | Leanne|Beef Wellington|Raspberry Tiramisu
+
+#November 3, 2025
+Who I think is foing to be affected is snap, how i think technology would help us if they can find website's that are safe to use so we don't get scam, the challenges i think of not using technology is you won't get to find out what is happing in the world, if I had a website to like help people i would call it the juan helper.
