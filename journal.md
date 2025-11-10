@@ -38,3 +38,6 @@ i played the game Super Slime Battle
 
 #November 3, 2025
 Who I think is foing to be affected is snap, how i think technology would help us if they can find website's that are safe to use so we don't get scam, the challenges i think of not using technology is you won't get to find out what is happing in the world, if I had a website to like help people i would call it the juan helper.
+
+# November 10, 2025
+I feel like technology hasen't really changed holidays because not that much people really post any holidays a lot. I don't fell like it effects the holidays because nothing really happinig to any of the holidays. I feel like developers are not causing any family bonding time because you get to see your son or daughter open a presnet that you bought for them and when they open the present they are happy that you bought them that present so I feel like it's not the developers fault
