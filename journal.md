@@ -41,3 +41,6 @@ Who I think is foing to be affected is snap, how i think technology would help u
 
 # November 10, 2025
 I feel like technology hasen't really changed holidays because not that much people really post any holidays a lot. I don't fell like it effects the holidays because nothing really happinig to any of the holidays. I feel like developers are not causing any family bonding time because you get to see your son or daughter open a presnet that you bought for them and when they open the present they are happy that you bought them that present so I feel like it's not the developers fault.
+
+# November 17, 2025
+yes im looking forward for thanksgiving break
