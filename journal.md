@@ -44,3 +44,9 @@ I feel like technology hasen't really changed holidays because not that much peo
 
 # November 17, 2025
 yes im looking forward for thanksgiving break
+
+# December 1, 2025
+I would do like the nfl drone job becuase it looks cool and they do get paid a lot of money and i get to see nfl games from the drone and ill get to be invloed in the nfl games and i get to experiance like how fan base cherr for there team.
+
+# December 8, 2025
+why i think cars should stop if the bus driver puts the stop sign is that what if a kid drops something on the road and he can't do anything becuase the road is full with cars driving and other thing its a law that people have to stop on a stop sign.
