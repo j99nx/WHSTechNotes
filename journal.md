@@ -50,3 +50,6 @@ I would do like the nfl drone job becuase it looks cool and they do get paid a l
 
 # December 8, 2025
 why i think cars should stop if the bus driver puts the stop sign is that what if a kid drops something on the road and he can't do anything becuase the road is full with cars driving and other thing its a law that people have to stop on a stop sign.
+
+# December 15, 2025
+What my plans if for this winter break is just chill at home and watch movies
