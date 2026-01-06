@@ -53,3 +53,6 @@ why i think cars should stop if the bus driver puts the stop sign is that what i
 
 # December 15, 2025
 What my plans if for this winter break is just chill at home and watch movies
+
+# January 6, 2026
+How i used techonlgy during the winter break is by texting family and friends and i used my consle to play video games with my friends
