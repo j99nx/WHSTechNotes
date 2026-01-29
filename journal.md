@@ -56,3 +56,6 @@ What my plans if for this winter break is just chill at home and watch movies
 
 # January 6, 2026
 How i used techonlgy during the winter break is by texting family and friends and i used my consle to play video games with my friends
+
+# January 29, 2026
+I took the tsi and i think i did pretty good and i took the reading and math tsi 
