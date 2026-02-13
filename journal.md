@@ -59,3 +59,6 @@ How i used techonlgy during the winter break is by texting family and friends an
 
 # January 29, 2026
 I took the tsi and i think i did pretty good and i took the reading and math tsi 
+
+# february 13, 2026
+yes i enjoy football because it was the first ever sport i played and i just love the game, yes i watched the super bowl, i thought it was a boring game but there was times it was good 
