@@ -61,4 +61,7 @@ How i used techonlgy during the winter break is by texting family and friends an
 I took the tsi and i think i did pretty good and i took the reading and math tsi 
 
 # february 10, 2026
-yes i enjoy football because it was the first ever sport i played and i just love the game, yes i watched the super bowl, i thought it was a boring game but there was times it was good 
+yes i enjoy football because it was the first ever sport i played and i just love the game, yes i watched the super bowl, i thought it was a boring game but there was times it was good
+
+# March 23, 2026
+How i did my bracket is by guessing from which team i thought was good and some teams i knew that was good. I didn't watch march maddens this week. how i think reserach and data will help some people bracket is by like seeing what type of teams did they play and if they played agianst good teams amd to see who are there best players on the team. What i think a computer could do on its own bracket is by the help of ai and seeing the data of each team to see who is good and who is the better team. what i think some websites are good for this type of sporting event is propbly kailsheet
